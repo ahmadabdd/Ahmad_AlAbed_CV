@@ -1,3 +1,3 @@
 # Ahmad_AlAbed_CV
-![Ahmad_Alabed_CV (1)-1](https://user-images.githubusercontent.com/58667082/140921321-e3ac0884-1396-4f98-92b6-2697ee0013b1.png)
+![Ahmad_Alabed_CV (1)-1](https://user-images.githubusercontent.com/58667082/141468788-c02ef660-3d13-4b63-9d42-47302a3531e6.png)
 
